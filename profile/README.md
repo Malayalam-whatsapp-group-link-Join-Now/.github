@@ -8,15 +8,15 @@ There are many Malayalees living in India and UAE who are looking for connection
 
 ## List of Malayalam WhatsApp Group Links  
 
-- **Malayalam Hub** 👉 [Join Now](https://tazagame.site)  
-- **Malayalam Group** 👉 [Join Now](https://tazagame.site/active-punjabi-girl-whatsapp-group-link-join-now/)  
-- **Delhi Malayalam** 👉 [Join Now](https://tazagame.site/philippines-girl-whatsapp-group-link/)  
-- **All Malayalam** 👉 [Join Now](https://tazagame.site/foreign-girl-whatsapp-group-link-join-now/)  
-- **Mumbai Malayalam** 👉 [Join Now](https://tazagame.site/uae-jobs-whatsapp-group/)  
+- **Malayalam Hub** 👉 [Join Now](https://github.com/single-girl-whatsapp-group-link)  
+- **Malayalam Group** 👉 [Join Now](https://github.com/tamil-aunties-whatsapp-group-link)  
+- **Delhi Malayalam** 👉 [Join Now](https://github.com/tamil-aunty-whatsapp-group)  
+- **All Malayalam** 👉 [Join Now](https://github.com/whatsapp-group-link)  
+- **Mumbai Malayalam** 👉 [Join Now](https://github.com/ladies-whatsapp-group)  
 
 ## WhatsApp Group Link Malayalam
-- **Live Vedi** 👉 [Join Now](https://tazagame.site/foreign-girl-whatsapp-group-link-join-now/)  
-- **Best Mala** 👉 [Join Now](https://tazagame.site/active-punjabi-girl-whatsapp-group-link-join-now/)  
+- **Live Vedi** 👉 [Join Now](https://github.com/girls-whatsapp-group)  
+- **Best Mala** 👉 [Join Now](https://github.com/foreign-girl-whatsapp-group)  
 - **Malayalam Lovers** 👉 [Join Now](https://tazagame.site/)  
 - **Crazy Group** 👉 [Join Now](https://chat.whatsapp.com/invite/JokH8errdLtACY7lM0qenU)  
 - **Malayalam Zone** 👉 [Join Now](https://tazagame.site/philippines-girl-whatsapp-group-link/)  
