@@ -24,3 +24,11 @@ There are many Malayalees living in India and UAE who are looking for connection
 In this article, I shared **Malayalam WhatsApp groups** for you. You can easily join any group you want with a single click on the "Join Now" button.  
 
 If you liked this article, please share it with your friends and more members on social media so they can also join these groups and make friends in India and beyond.  
+
+Kerala Malayalam WhatsApp Group link girl
+
+Vedi WhatsApp group link Malayalam
+
+നീലക്കുറിഞ്ഞി whatsapp group link
+
+Thund whatsapp group
