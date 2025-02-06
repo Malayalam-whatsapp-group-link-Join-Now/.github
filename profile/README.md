@@ -7,6 +7,7 @@ Many people search for **Malayalam WhatsApp groups** on the internet but often g
 There are many Malayalees living in India and UAE who are looking for connections. If you are from India and want to make friends with them, below is a complete list of **India WhatsApp group links** in Malayalam. You can join any of them as per your wish.  
 
 ## List of Malayalam WhatsApp Group Links  
+![click here](https://camo.githubusercontent.com/8effc960766b04edc5e37512a6af85c8074b0a845b3b18302ac77ca9c975e1d0/68747470733a2f2f6d656469612e74656e6f722e636f6d2f7157574b2d4f38334a355941414141692f636c69636b2d686572652e676966)
 
 - **Malayalam Hub** 👉 [Join Now](https://tazagame.site/)  
 - **Malayalam Group** 👉 [Join Now](https://tazagame.site/philippines-girl-whatsapp-group-link/)  
